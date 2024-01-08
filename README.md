@@ -1,2 +1,0 @@
-# projet-MSQL
-NDJIKY ARNAULD Pre MSC Info
